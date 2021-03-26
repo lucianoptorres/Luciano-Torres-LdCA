@@ -6,6 +6,8 @@ Depois de um certo ponto, percebi que a melhor maneira de retribuir à maravilho
 
 Instagram: [luciano_torres_pnl](https://www.instagram.com/luciano_torres_pnl/?hl=en)  
 
+![LdCA GitHub Cover Image](https://user-images.githubusercontent.com/79341326/112650439-4b2b1600-8e43-11eb-95b9-92708e057003.png)
+
 ----
 
 ## 🚨 🚨 🚨 Lançamento Oficial do Livro 🚨 🚨 🚨
