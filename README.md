@@ -16,6 +16,6 @@ Página do Livro da Amazon: [Liberte-se da Compulsão Alimentar: 3 Passos Simple
 
 ----
 
-### ⏭ Seguindo em Frente ⏭
+## ⏭ Seguindo em Frente ⏭
 
 Eu acredito fortemente na melhoria contínua. Pretendo usar essa plataforma para fazer com que todas as alterações em meu livro entrem em vigor de maneira organizada. Isso pode incluir estatísticas e fatos mais atualizados, junto com a correção de erros de digitação e outros erros lógicos.
